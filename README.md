@@ -11,7 +11,7 @@ I care about creating opportunities for young people — especially girls — to
 - Advocate for girls' empowerment and youth leadership
 - Build skills in technology, data and software development
 - Speak and participate in conversations around leadership and girls' empowerment
-- Volunteer with **Book Bridge Foundation** and **YAWAI Initiative**
+- Volunteer with **Book Bridge Foundation** and **YAWAI Initiative among others**
 - Founder of **Girls' Unplugged: Bloom & Glow Circle**
 
 ## 🏆 Highlights
