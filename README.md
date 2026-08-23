@@ -44,7 +44,7 @@ My public-speaking and leadership experiences include youth and girls-focused su
 
 **[Motunrayo Linda Idowu](https://tunrayo-dev.github.io/linda-dev/)**
 
-Learn. Lead. Transform.## Hi there 👋
+Learn. Lead. Transform.
 
 <!--
 **tunrayo-dev/tunrayo-dev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
